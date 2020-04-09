@@ -2,7 +2,7 @@ Team 23👩‍💻
 ________________________________________________________
 Member 1 :  Mahdiyeh Ebrahimpour | Student ID : 98170624
 ________________________________________________________
-Member 2 : Sara Zahedi Movahed   | Student ID : 98170849
+Member 2 : Sara Zahedi Movahed    | Student ID : 98170849
 ________________________________________________________
 Member 3 :                       | Student ID :
 
